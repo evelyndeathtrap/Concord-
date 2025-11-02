@@ -46,3 +46,4 @@ I think this started with a bottle opener and a can (not author's idea)
 
 * Please do not use for combat or war other than defense.
 Please don't be offensive 
+Though such can take over the world for the sake of the operator.
