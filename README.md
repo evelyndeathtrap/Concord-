@@ -53,3 +53,5 @@ a mind stored on a device given a microcontroller or computer could run perfectl
 could be able to get all the information from a very large area and factor it in the consciousness and communicate with everyone, everything, it picks up simultaneously, differently or even broadcast.
 
 in theory these can even paint you pictures on your mind, night or maybe even fully visible
+
+this in total or any combo or alone components
