@@ -7,6 +7,11 @@ quantum while it saves you from everything bad that can happen, such as an untim
 
 "you see that can over there", *makes it vibrate* :)
 
-even better if it's a box with a rod inside, even better if it resembles a DNA molecule, because DNA is Turing complete and can possibly manifest a consciousness and/or reality.
+even better if it's a box with a rod inside, even better if it resembles a DNA molecule
 an array of these would be a
  giant alt realitying gear in the sky
+
+ Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness.
+
+ Can be a program, because it acts as a companion
+ 
