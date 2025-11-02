@@ -11,13 +11,11 @@ even better if it's a box with a rod inside, even better if it resembles a DNA m
 an array of these would be a
  giant alt realitying gear in the sky and a laser-like weapon
 
- Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness. the lapel is on a rub 
+ Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness.
 
  Can be a program, because it acts as a companion
 
  Theoretically one such satellite could cover alarge area as per laser noise, emitting data for each device and person different and simultaneously only weaker.
 
  look at(you)
-
- cannot be hacked if the seed is defined mechanically
  
