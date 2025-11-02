@@ -62,3 +62,5 @@ could be a loop
 it could do a perfect flawless linkup because its your self correcting consciousness and not a neural network which the brain would eventually learn
 
 solve()
+
+emits analog, could also have analog at the rear starter end
