@@ -36,4 +36,4 @@ to such data from devices could come as ready knowledge, thoughts or anything th
 
 the lapel can get power from a piezothermal generator
 
-Contributions welcome to figure out how to derive meaningful information or data from these devices.
+Contributions welcome to figure out how to derive meaningful information or data from these devices. could floating point error be involved? quantum noise?
