@@ -6,3 +6,5 @@ can be pure or with a computer. can be a doomsday device can also be a physical 
 quantum while it saves you from everything bad that can happen, such as an untimely death.
 
 "you see that can over there", *makes it vibrate* :)
+
+even better if it's a box with a rod inside, even better if it resembles a DNA molecule
