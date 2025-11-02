@@ -45,7 +45,8 @@ I think this started with a bottle opener and a can (not author's idea)
 * note a full sex change by modern technology is impossible, meant as opposed to it being a war purposed device or machine.
 
 * Please do not use for combat or war other than defense.
-Please don't be offensive 
+Please don't be offensive
+Please do not use for offensive purposes
 Though such can take over the world for the sake of the operator, if possible as imagined by taking control over living beings or at least influencing. this would be to create more similar realities to travel to. or at least store the mind and project it and make it easier
 
 a mind stored on a device given a microcontroller or computer could run perfectly, hypothetically.
