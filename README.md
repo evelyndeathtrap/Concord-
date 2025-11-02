@@ -23,4 +23,4 @@ can be a room temperature qbit on your rib lapel or a supercomputer pr a persona
 
 it's qbit can be mechanical or physical
 
-in theory these can achieve even a complete sex change full with how you look
+in theory these can achieve even a complete sex change full with looks, at least some kind of surgery, it being a weapon.
