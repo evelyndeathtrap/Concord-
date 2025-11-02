@@ -46,4 +46,4 @@ I think this started with a bottle opener and a can (not author's idea)
 
 * Please do not use for combat or war other than defense.
 Please don't be offensive 
-Though such can take over the world for the sake of the operator, if possible as imagined by taking control over living beings or at least influencing.
+Though such can take over the world for the sake of the operator, if possible as imagined by taking control over living beings or at least influencing. this would be to create more similar realities to travel to.
