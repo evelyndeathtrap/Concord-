@@ -41,3 +41,7 @@ Contributions welcome to figure out how to derive meaningful information or data
 if it's a plane of existence then users can live in these devices manifested realities 
 
 I think this started with a bottle opener and a can (not author's idea)
+
+* note a full sex change by modern technology is impossible, meant as opposed to it being a war purposed device or machine.
+
+* Please do not use for combat or war other than defense.
