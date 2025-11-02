@@ -58,3 +58,5 @@ in theory these can even paint you pictures on your mind, night or maybe even fu
 this in total or any combo or alone components viable
 
 could be a loop
+
+it could do a perfect flawless linkup because its your self correcting consciousness and not a neural network which the brain would eventually learn
