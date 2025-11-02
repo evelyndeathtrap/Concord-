@@ -35,3 +35,5 @@ Could also be a program driving the component with parameters stored in memory, 
 to such data from devices could come as ready knowledge, thoughts or anything that a consciousness can interpret, including an image
 
 the lapel can get power from a piezothermal generator
+
+Contributions welcome to figure out how to derive meaningful information or data from these devices.
