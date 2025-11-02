@@ -40,4 +40,4 @@ Contributions welcome to figure out how to derive meaningful information or data
 
 if it's a plane of existence then users can live in these devices manifested realities 
 
-I think this started with a bottle opener and a can
+I think this started with a bottle opener and a can (not author's idea)
