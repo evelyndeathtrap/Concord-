@@ -11,7 +11,7 @@ even better if it's a box with a rod inside, even better if it resembles a DNA m
 an array of these would be a
  giant alt realitying gear in the sky and a laser-like weapon
 
- Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness.
+ Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness. the lapel is on a rub 
 
  Can be a program, because it acts as a companion
 
