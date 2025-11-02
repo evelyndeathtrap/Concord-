@@ -54,4 +54,4 @@ could be able to get all the information from a very large area and factor it in
 
 in theory these can even paint you pictures on your mind, night or maybe even fully visible
 
-this in total or any combo or alone components
+this in total or any combo or alone components viable
