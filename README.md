@@ -9,7 +9,7 @@ quantum while it saves you from everything bad that can happen, such as an untim
 
 even better if it's a box with a rod inside, even better if it resembles a DNA molecule
 an array of these would be a
- giant alt realitying gear in the sky
+ giant alt realitying gear in the sky and a laser-like weapon
 
  Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness.
 
