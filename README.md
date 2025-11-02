@@ -14,4 +14,9 @@ an array of these would be a
  Such an orbital weapon or even a lapel gadget can sync with your consciousness and make it easy to think, reason and control by modulating that with your mind. integrates the consciousness.
 
  Can be a program, because it acts as a companion
+
+ Theoretically one such satellite could cover alarge area as per laser noise, emitting data for each device and person different and simultaneously only weaker.
+
+ look at(you)
+ solve()
  
