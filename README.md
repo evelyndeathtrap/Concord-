@@ -20,3 +20,5 @@ an array of these would be a
  look at(you)
  
 can be a room temperature qbit on your rib lapel or a supercomputer pr a personal computer component either freely existing or driven by a possibly parametrizable loop in programming
+
+it's qbit can be mechanical or physical
