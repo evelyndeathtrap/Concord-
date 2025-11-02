@@ -18,4 +18,6 @@ an array of these would be a
  Theoretically one such satellite could cover alarge area as per laser noise, emitting data for each device and person different and simultaneously only weaker.
 
  look at(you)
+
+ cannot be hacked if the seed is defined mechanically
  
