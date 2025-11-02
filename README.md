@@ -31,3 +31,5 @@ could be nice to live in one because if true it generates your consciousness for
 this would imply that consciousness could understand symbols, maybe even binary as input values and if these have weird properties then they could learn how to do this by just one having learned
 
 Could also be a program driving the component with parameters stored in memory, preferable visible at least known to the device
+
+to such data from devices could come as ready knowledge, thoughts or anything that a consciousness can interpret, including an image
