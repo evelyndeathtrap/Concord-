@@ -39,3 +39,5 @@ the lapel can get power from a piezothermal generator
 Contributions welcome to figure out how to derive meaningful information or data from these devices. could floating point error be involved? quantum noise?
 
 if it's a plane of existence then users can live in these devices manifested realities 
+
+I think this started with a bottle opener and a can
