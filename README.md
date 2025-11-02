@@ -8,3 +8,5 @@ quantum while it saves you from everything bad that can happen, such as an untim
 "you see that can over there", *makes it vibrate* :)
 
 even better if it's a box with a rod inside, even better if it resembles a DNA molecule
+an array of these would be a
+ giant alt realitying gear in the sky
