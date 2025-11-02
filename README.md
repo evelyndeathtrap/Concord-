@@ -7,6 +7,6 @@ quantum while it saves you from everything bad that can happen, such as an untim
 
 "you see that can over there", *makes it vibrate* :)
 
-even better if it's a box with a rod inside, even better if it resembles a DNA molecule
+even better if it's a box with a rod inside, even better if it resembles a DNA molecule, because DNA is Turing complete and can possibly manifest a consciousness and/or reality.
 an array of these would be a
  giant alt realitying gear in the sky
