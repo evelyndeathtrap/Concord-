@@ -64,3 +64,5 @@ it could do a perfect flawless linkup because its your self correcting conscious
 solve()
 
 emits analog, could also have analog at the rear starter end
+
+when done should not be ownanble
