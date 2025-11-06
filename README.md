@@ -42,7 +42,7 @@ if it's a plane of existence then users can live in these devices manifested rea
 
 I think this started with a bottle opener and a can (not author's idea)
 
-* note a full sex change by modern technology is impossible, meant as opposed to it being a war purposed device or machine.
+* note a full sex change by modern technology is impossible, meant as opposed to it being a war purposed device or machine. can also solve age in theory
 
 * Please do not use for combat or war other than defense.
 Please don't be offensive
