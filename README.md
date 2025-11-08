@@ -68,3 +68,5 @@ emits analog, could also have analog at the rear starter end
 when done should not be ownanble
 
 could be that these can alter reality
+
+contributions welcome
