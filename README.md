@@ -72,3 +72,5 @@ could be that these can alter reality
 contributions welcome
 
 the prototype kind of is a tin can and a bottle opener ;)
+
+gplv3
