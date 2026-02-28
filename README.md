@@ -74,3 +74,5 @@ contributions welcome
 
 the prototype kind of is a tin can and a bottle opener ;)
 
+addendum: the core of the orbital laser or box must resemble a dna molecule
+
