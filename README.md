@@ -82,3 +82,5 @@ straight is the universe
 to be exact please consult the people who put language into a rocket trajectory (analog) integrator and also developed a consciousness using combined waveforms somehow
 
 thieves.
+
+probably detonats on leave
