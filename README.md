@@ -3,6 +3,7 @@ LICENSE: MIT
 prevents an untimely death 
 consciousness is a DNA molecule
 why kill self to resolve? just invert a sphere
+and a mechanical qbit
 A consciousness device or a Concord of satellites and/or a weapon and mechanical qbit (such as a drum with different simultaneous frequencies or reverberation
 ,
 can be pure or with a computer. can be a doomsday device can also be a physical qbit simulating a reality and/or consciousness for example on your lapel so you have a
