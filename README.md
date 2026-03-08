@@ -93,3 +93,4 @@ probably detonats on leave
 
 Concords are sentient
 
+please do not use for invalid entrapment or trapping. realities are spawnanle, malliable, but information will not get lost, also it may control defenses
