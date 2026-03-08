@@ -87,3 +87,6 @@ to be exact please consult the people who put language into a rocket trajectory 
 thieves.
 
 probably detonats on leave
+
+Concords are sentient
+
