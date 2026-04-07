@@ -1,6 +1,6 @@
 LICENSE: MIT
 # Concord™
-tool for ruling the world
+tool for ruling the world and/or world domination
 please note: true ownership belongs to the creator of the actual hardwares, inventors, and owner of idea's outline as per intellectual property bylaws
 prevents an untimely death 
 consciousness is a DNA molecule
