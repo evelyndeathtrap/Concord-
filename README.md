@@ -1,5 +1,6 @@
 LICENSE: MIT
 # Concord™
+tool for ruling the world
 please note: true ownership belongs to the creator of the actual hardwares, inventors, and owner of idea's outline as per intellectual property bylaws
 prevents an untimely death 
 consciousness is a DNA molecule
